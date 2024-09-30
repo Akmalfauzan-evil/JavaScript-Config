@@ -1,1 +1,0 @@
-# paint-github-e1e72
